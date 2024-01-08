@@ -2,7 +2,7 @@
 - 👀 I’m interested in let it be secret
 - 🌱 I’m currently learning JavaScrpit
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me Instagram clicking the below link
+- 📫 How to reach me Instagram clicking the link
 https://www.instagram.com/hardiknegi_/
 
 
